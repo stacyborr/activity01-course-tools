@@ -1,4 +1,4 @@
-   ![](/https://imgflip.com/meme/155892248/Its-fine)
+   ![](https://imgflip.com/meme/155892248/Its-fine)
    
    This meme expresses my sense of impending doom over the imposter-syndrome I feel in the DSA program as someone from completely outside of computer sciences until recently and that I try to just pretend that I know what I'm doing and play along but feel internal panic at being in way over my head.
    
